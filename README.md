@@ -1,2 +1,2 @@
 # paginaweb
-fincas Quindiana productoras de  cacao 
+fincas Quindianas productoras de  cacao 
